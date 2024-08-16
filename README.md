@@ -6,4 +6,4 @@
 
 为了防止六尺巷VP机场出现突发技术故障或减少跑路倒闭了损失，我们强烈推荐一款高速稳定的机场梯子 – DOVE加速器。作为六尺巷VP机场的备选替代方案，当六尺巷VP机场不能用时，DOVE加速器可以确保您的网络使用不受影响。
 
-#### ![DOVE加速器，点击免费注册](https://dove8.cc/a.php?asbcbO1PCgF)
+#### [DOVE加速器，点击免费注册](https://dove8.cc/a.php?asbcbO1PCgF)
